@@ -1,4 +1,4 @@
-### Bem-vindo(a) ao perfil do Aline T. de Araújo Thomaz 😁
+### Bem-vindo(a) ao perfil de Aline T. de Araújo Thomaz 😁
 
  <div>
    <a href="https://github.com/alineathomaz">
